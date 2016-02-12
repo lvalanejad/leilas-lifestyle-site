@@ -1,0 +1,1 @@
+This website is a typical lifestyle blog that will focus on my passion areas - cooking, dining out, fashion, entertainment and travel. 
